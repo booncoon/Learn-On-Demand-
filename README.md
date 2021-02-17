@@ -9,7 +9,11 @@
 
 -Contact me: codingprojects@protonmail.com
 
--REWARD WILL BE GIVEN!!!!
+-REWARD WILL BE GIVEN, if the project is sucessful I am trying sell this app to the owner of the website
 
+It is an educational website(you can tell from its website link)
+
+
+Thank you very much!
 
 #First Project
